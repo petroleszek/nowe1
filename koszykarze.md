@@ -15,7 +15,7 @@ There’s no doubt Jimmy Butler can string together incredible playoff performan
 
 [statystyki](https://petroleszek.github.io/nowe1/jimmy_butler)
 
-19. Damian Lillard, Milwaukee Bucks
+19. [Damian Lillard, Milwaukee Bucks](https://petroleszek.github.io/nowe1/damian_lillard)
 -----------------------------------
 
 ![](https://bunkersparadise.com/wp-content/uploads/2024/10/lillard-590x393.jpg)
@@ -24,7 +24,7 @@ Benny Sieu-USA TODAY Sports
 
 Lillard’s first year with Giannis Antetokounmpo could best be described as a massive disappointment. Head coach Adrian Griffin was fired, Doc Rivers took over to produce even worse results, and the Bucks failed to reach the second round of the playoffs for the second consecutive season. The blame shouldn’t strictly be placed on Lillard, who still posted similar numbers to his Portland days with 24.3 points, 7 assists and 4.4 rebounds per game. He still remains a lethal scorer who – on paper – should work seamlessly with Giannis. Expectations in year two will be high in Milwaukee – anything short of a title will be considered a disappointment.
 
-18. Kyrie Irving, Dallas Mavericks
+18. [Kyrie Irving, Dallas Mavericks](https://petroleszek.github.io/nowe1/kyrie_irving)
 ----------------------------------
 
 ![](https://bunkersparadise.com/wp-content/uploads/2024/10/irving-590x393.jpg)
@@ -33,7 +33,7 @@ Jerome Miron-USA TODAY Sports
 
 Remember when everyone was calling the Kyrie-Luka Dončić pairing a failed experiment? Fast forward seven months, and entering the NBA Finals, pundits were wondering if it was the best backcourt in NBA history. Although Kyrie and the Mavs ultimately fell short of an NBA title, fans were quickly reminded of Kyrie’s brilliance. His ball-handling skills are the best in NBA history and his ability to create offense or work as a spot-up shooter make him an ideal piece next to Dončić. The future Hall of Famer enters this season eager to prove last year was no fluke.
 
-17. Jaylen Brown, Boston Celtics
+17. [Jaylen Brown, Boston Celtics](https://petroleszek.github.io/nowe1/jaylen_brown)
 --------------------------------
 
 ![](https://bunkersparadise.com/wp-content/uploads/2024/10/brown-590x393.jpg)
