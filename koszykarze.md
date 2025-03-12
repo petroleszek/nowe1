@@ -4,7 +4,7 @@ USA TODAY Sports
 
 The NBA is loaded with superstars, which is quickly made obvious by how many great players don’t crack the top 20 on this list (apologies to Tyrese Maxey, Tyrese Haliburton, Bam Adebayo, Paul George, Ja Morant, Zion Williamson, Karl-Anthony Towns and countless others). As we count down the NBA’s 20 best, we break down the stars who are shaping the league with their skill, leadership, and consistency. Whether it’s explosive scoring, lockdown defense, or all-around versatility, these players define what it means to be the best in basketball today. Let’s dive in.
 
-20. Jimmy Butler, Miami Heat
+20. [Jimmy Butler, Miami Heat](https://petroleszek.github.io/nowe1/jimmy_butler)
 ----------------------------
 
 ![](https://bunkersparadise.com/wp-content/uploads/2024/10/JBut-590x393.jpg)
