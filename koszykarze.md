@@ -11,7 +11,9 @@ The NBA is loaded with superstars, which is quickly made obvious by how many gre
 
 Bill Streicher-USA TODAY Sports
 
-There’s no doubt Jimmy Butler can string together incredible playoff performances. He carried mediocre Miami Heat squads to the NBA Finals twice, going toe-to-toe with LeBron James, Anthony Davis and Nikola Jokic. He is a 5-time All-NBA selection, 5-time All-Defensive selection and brings the intensity every time he steps on the floor. However, he just doesn’t take over games on the offensive end quite the same way as so many superstars later on this list. While he would place even higher if this list was strictly referring to the postseason, anyone who cracks the NBA’s top 20 is an unquestioned superstar. [statystyki](https://petroleszek.github.io/nowe1/jimmy_butler)
+There’s no doubt Jimmy Butler can string together incredible playoff performances. He carried mediocre Miami Heat squads to the NBA Finals twice, going toe-to-toe with LeBron James, Anthony Davis and Nikola Jokic. He is a 5-time All-NBA selection, 5-time All-Defensive selection and brings the intensity every time he steps on the floor. However, he just doesn’t take over games on the offensive end quite the same way as so many superstars later on this list. While he would place even higher if this list was strictly referring to the postseason, anyone who cracks the NBA’s top 20 is an unquestioned superstar.
+
+[statystyki](https://petroleszek.github.io/nowe1/jimmy_butler)
 
 19. Damian Lillard, Milwaukee Bucks
 -----------------------------------
